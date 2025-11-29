@@ -3,4 +3,5 @@ Hello everyone thank you so much for checking out my revision resources during A
 
 If there any mistakes or issues feel free to let me know but I want you to most importantly know that it's never too late to start revision to get the grade you want as well as Jesus loves you.
 
-This repository is heavily inspired from TheRamjad repository for his A level resources so please check his out as well as he did Maths,Physics,Chemistry and Further Maths
+This repository is heavily inspired from theramjad repository for his A level resources so please check his out as well as he did Maths,Physics,Chemistry and Further Maths
+[theramjad] https://github.com/theramjad/a-level-resources
