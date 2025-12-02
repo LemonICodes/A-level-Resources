@@ -1,5 +1,5 @@
 # A-level-Resources
-Hello everyone thank you so much for checking out my revision resources during A levels for context I did A-levels from September 2023 to June 2025 and it was an amazing season in my life.
+Hello everyone thank you so much for checking out my revision resources during A levels for context I did A-levels from September 2023 to June 2025 and it was fun in a way.
 
 If there any mistakes or issues feel free to let me know but I want you to most importantly know that it's never too late to start revision to get the grade you want as well as Jesus loves you.
 
